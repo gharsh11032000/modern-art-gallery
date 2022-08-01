@@ -1,1 +1,1 @@
-# Modern-Art-Gallary
+# Modern Art Gallary
